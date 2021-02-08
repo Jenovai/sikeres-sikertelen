@@ -1,1 +1,0 @@
-# sikeres-sikertelen
